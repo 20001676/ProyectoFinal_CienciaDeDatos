@@ -1,1 +1,4 @@
-# Proyecto_Final (7).ipynb
+# Kimberly Rivera 
+# Stefanie Alvarez
+# Enlace a video:
+
